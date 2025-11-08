@@ -2,3 +2,5 @@ This repo contains several images showing the people behind "perseus" are FUCKIN
 
 
 I DO NOT SUPPORT THESE GUYS IN ANY WAY, IM JUST HERE TO SHOW PROOF.
+
+also "slander" means: "The action or crime of making a false spoken statement damaging to a person's reputation.", that is NOT what this is, I only put slander cuz I misuse that term very often, this is more like evidence
